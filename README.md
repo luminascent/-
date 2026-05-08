@@ -14,7 +14,5 @@
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-![Project image]
-(5LHOtbdi8)
 
 
